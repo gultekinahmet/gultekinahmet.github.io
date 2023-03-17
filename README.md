@@ -1,0 +1,1 @@
+# gultekinahmet.github.io
